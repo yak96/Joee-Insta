@@ -35,5 +35,11 @@
      $ cd $HOME Joee-Insta
      $ git pull
      $ python run.py
-     
+
+
+----
+         Want to update to premium ?
+         WhatsApp : 083164279551
+         Link WhatsApp : wa.me/+6283164279551
+         Facebook : www.facebook.com/XX72.XVV2050
 
