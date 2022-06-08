@@ -47,10 +47,8 @@
 
 
 # UPGRADE
-         Want to update to premium ?
-         • WhatsApp : 083164279551
-         • Link WhatsApp : wa.me/+6283164279551
-         • Facebook : www.facebook.com/XX72.XVV2050
+            Want to update to premium ?
+               my contact is below 👇
 
 [![2b28354fc2ab9e3204248295a354d1a2.gif](https://i.postimg.cc/nzVNmyDS/2b28354fc2ab9e3204248295a354d1a2.gif)](https://postimg.cc/063tRHZ7)
 
