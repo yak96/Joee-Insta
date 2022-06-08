@@ -1,8 +1,7 @@
-[![20220608-145054.png](https://i.postimg.cc/7L65Qc3j/20220608-145054.png)](https://postimg.cc/BjrZjmwC)
+
+[![a4c132ada8c1797c0cbd93d8609a9ac4.gif](https://i.postimg.cc/HsPWktfC/a4c132ada8c1797c0cbd93d8609a9ac4.gif)](https://postimg.cc/Tpgvkndk)
 
               Premium Tools Instagram V2
-
-----
 
 <h1 align="center">Hi 👋, I'm Joe Dev</h1>
 
@@ -52,6 +51,8 @@
          • WhatsApp : 083164279551
          • Link WhatsApp : wa.me/+6283164279551
          • Facebook : www.facebook.com/XX72.XVV2050
+
+[![2b28354fc2ab9e3204248295a354d1a2.gif](https://i.postimg.cc/nzVNmyDS/2b28354fc2ab9e3204248295a354d1a2.gif)](https://postimg.cc/063tRHZ7)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
